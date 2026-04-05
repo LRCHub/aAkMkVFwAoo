@@ -1,4 +1,4 @@
-# Mariah Carey – All I Want for Christmas Is You (Make My Wish Come True Edition)
+# Mariah Carey – All I Want for Christmas Is You
 
 > **歌詞登録ステータス：同期歌詞あり**
 
